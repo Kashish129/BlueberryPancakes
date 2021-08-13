@@ -1,1 +1,1 @@
-# BlueberryPancakes
+**This recipe will help you making delicious blueberry flapjacks/pancakes**
